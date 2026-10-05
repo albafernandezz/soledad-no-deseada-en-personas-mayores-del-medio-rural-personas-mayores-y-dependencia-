@@ -1,0 +1,2 @@
+# soledad-no-deseada-en-personas-mayores-del-medio-rural-personas-mayores-y-dependencia-
+Existen ciertas desventajas para el colectivo de las personas mayores, sobre todo para aquellas que viven en el medio rural. Con este tema, pretendemos abordar los distintos factores que agravan la situación de aislamiento social. También, se busca entender como influyen las tecnologías en la vida diaria de las personas de tercera edad.
